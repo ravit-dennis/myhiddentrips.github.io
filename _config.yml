@@ -23,6 +23,9 @@ github_username: username
 minimal_mistakes_skin: default
 search: true
 
+# Google Analytics
+google_analytics: G-8WB62WXHNF
+
 # Build settings
 markdown: kramdown
 remote_theme: mmistakes/minimal-mistakes
