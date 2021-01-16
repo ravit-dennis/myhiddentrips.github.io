@@ -83,14 +83,28 @@ Other than that and the centipedes don’t worry.
 # Things to do
 In general we planned on spending a week, which is more than enough for this place, but ended up spending 3 weeks because of COVID. We basically know every spot of Mahe, I don’t recommend spending more than a week.
 
-1.	Take a car and travel around the island’s beaches. The beaches are somewhat different from one another, some of them are silend, some storny, some are clean some have a lot of sea weeds, some are blue some green some turquoise, some have white silky sand, others have a lot of shells etc. We loved collecting shells on the beaches, snorkelling and resting on the beaches. Recommended beaches: 
-    1.	 Constance Ephelie northern and southern beaches, the northern beach has deeper water and you can swim and snorkel. The southern beach is the prettiest beach on the island in my opinion, has shallow water (they are have tide in the mornings). When the water are very shallow you can walk to the island on the other side. The beach is very clean and pretty.
-    1. Anse intendence - a great beach, with white silky sand. The best part is that on the left side of the entrance there’s a bar with a nice bartender that can make you an awesome cold shake for the hot weather. 
-    1.	Oscar beach - No one mentions this beach for some reason but it’s one of the best beaches of the island. The sea is turquoise and quiet and there are no people. If you like collecting shells this is the beach for you!
-    1.	Anse soleil
-    1.	Maya beach
-1.	Take an organised trip to La Digue and Prasline. We took the trip with Giovanni which was great. The boat was clean and there is a max of 23 people. The guide was nice and explained about the history and culture of Seychelles. In La Digue they provided us with bikes and we cycles around the island, at the end we went to one of the best beaches I’ve seen in my like called Anse Source D’argent. They even take you to eat lunch at a restaurant 
-1.	Copolia trail
+## Travel around the island
+Take a car and travel around the island’s beaches. The beaches are somewhat different from one another, some of them are silend, some storny, some are clean some have a lot of sea weeds, some are blue some green some turquoise, some have white silky sand, others have a lot of shells etc. We loved collecting shells on the beaches, snorkelling and resting on the beaches. Below is a list of recommended beaches.
+
+### Constance Ephelie 
+As mentioned above, this hotel has two great beaches: northern and southern beaches. The northern beach has deeper water and you can swim and snorkel. The southern beach is the prettiest beach on the island in my opinion, has shallow water (they are have tide in the mornings). When the water are very shallow you can walk to the island on the other side. The beach is very clean and pretty.
+
+### Anse intendence 
+a great beach, with white silky sand. The best part is that on the left side of the entrance there’s a bar with a nice bartender that can make you an awesome cold shake for the hot weather. 
+
+### Oscar beach
+No one mentions this beach for some reason but it’s one of the best beaches of the island. The sea is turquoise and quiet and there are no people. If you like collecting shells this is the beach for you!
+
+### Anse soleil
+
+### Maya beach
+
+## La Digue and Praslin
+Take an organised trip to La Digue and Prasline. We took the trip with Giovanni which was great. The boat was clean and there is a max of 23 people. The guide was nice and explained about the history and culture of Seychelles. In La Digue they provided us with bikes and we cycles around the island, at the end we went to one of the best beaches I’ve seen in my like called Anse Source D’argent. They even take you to eat lunch at a restaurant 
+
+## Trails
+
+### Copolia trail
     1.	This is a great trek, not too hard, and the view is great. You get to see the side of Eden Island which is great. 
 
 > Tips:
@@ -100,9 +114,13 @@ In general we planned on spending a week, which is more than enough for this pla
 > 1. There is no parking lot so don’t look for one. Just park by the entrance of the trail.
 > 1.	Centepeds, beware!
 
-4.	Trek to Morn Blanc - we didn’t take it but heard it’s harder than the Copolia trail. 
-1.	Missions Lodge lookout - a very nice view. You need to pay a bit to enter.
+### Trek to Morn Blanc 
+We didn’t take it but heard it’s harder than the Copolia trail. 
 
+## Missions Lodge lookout
+Very nice view. You need to pay a bit to enter.
+
+![alt text]("/assets/images/1.jpg" "Mission Lodge")
 
 # What to pack
 1.	There are lots of mosquitoes so be sure to bring a repellent.
