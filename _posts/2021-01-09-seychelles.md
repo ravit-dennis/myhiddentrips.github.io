@@ -15,13 +15,20 @@ Lets start with what you need to know:
 
 # Hotels:
 
-While the major resorts are a bit on the pricey side (When looking for hotel we even mistakenly thought the price for a day was the price for the whole period), you'll definitely get your money's worth, with that being said - there are other great alternatives that won't
-dig a hole in your wallet.
+While the major resorts are a bit on the pricey side (When looking for hotel we even mistakenly thought the price for a day was the price for the whole period), you'll definitely get your money's worth, with that being said - there are other great alternatives that won't dig a hole in your wallet.
 
 ## Four Seasons:
 
 It is built on a mountain, the plus side is that you have very nice view from your room, the downside is that unless you are an experienced hiker, walking around the place is difficult, and you’ll be climbing some steep roads, but don’t worry - the hotel also provides a service of golf cars that take you from one place to the other so you don’t really have to do all this walking.
-The hotel’s beach is amazing, at the time we were there (December/January) the sea was a bit stormy, but blue and the sand was clean white. They also have a nice pool and different equipment for the sea like pedal boat etc.
+The hotel’s beach is amazing, at the time we were there (December/January) the sea was a bit stormy, but blue and the sand was clean white. 
+
+![](/assets/images/11.jpeg)
+
+![The pool](/assets/images/12.jpeg)
+
+They also have a nice pool and different equipment for the sea like pedal boat etc.
+
+![](/assets/images/13.jpeg)
 
 ## Six Senses:
 
@@ -35,7 +42,11 @@ All in all a great room, if you’re two couples and looking for privacy maybe i
 
 ![The family villa private pool](/assets/images/27.jpeg)
 
-At Christmas day they even wrote 'Marry Christmas' on our bed using leaves!
+The staff is very welcoming and nice, and each day in the afternoon we got a cake. At Chrismas they brought us the coolest cake with Santa! 
+
+![](/assets/images/9.jpeg)
+
+And even wrote 'Marry Christmas' on our bed using leaves.
 
 ![](/assets/images/7.jpeg)
 
@@ -102,22 +113,32 @@ Take a car and travel around the island’s beaches. The beaches are somewhat di
 As mentioned above, this hotel has two great beaches: northern and southern beaches. The northern beach has deeper water and you can swim and snorkel. The southern beach is the prettiest beach on the island in my opinion, has shallow water (they are have tide in the mornings). When the water are very shallow you can walk to the island on the other side. The beach is very clean and pretty.
 
 ### Anse intendence 
-A great beach, with white silky sand. The best part is that on the left side of the entrance there’s a bar with a nice bartender that can make you an awesome cold shake for the hot weather. 
+This one is one of the best beaches. It has white silky sand, at the time we visited (around Dec/Jan) the breach was very clean without any sea weeds and the sea was blue. 
+
+What makes this beach one of our favorites is that on the left side of the entrance there’s a bar with a nice bartender where you can order drinks right on the beach. 
 
 ![](/assets/images/36.jpeg)
 
+Around the bar there is a great atmosphere, there are wooden chairs, wooden tables and coconuts used for different decorations.
+
 ![](/assets/images/35.jpeg)
 
+My suggestion, is the fuit shake make of different fruites. As the bartender told me, 'everybody likes the shake!"
+
 ### Oscar beach
-No one mentions this beach for some reason but it’s one of the best beaches of the island. The sea is turquoise and quiet and there are no people. If you like collecting shells this is the beach for you!
+No one mentions this beach for some reason but it’s one of the best beaches of the island. You will identify it by Oscar restraurant that resides just by the entrace to the beach.
+
+![](/assets/images/18.jpeg)
+
+The sea is turquoise and quiet and there are not many people. 
 
 ![](/assets/images/15.jpeg)
 
-![](/assets/images/16.jpeg)
-
 ![](/assets/images/17.jpeg)
 
-![](/assets/images/18.jpeg)
+If you like collecting shells this is the beach for you! All its sand is made of shells and we found rare shells on this beach.
+
+![](/assets/images/16.jpeg)
 
 ### Anse soleil
 
@@ -130,7 +151,17 @@ Take an organised trip to La Digue and Prasline. We took the trip with Giovanni 
 
 ### Copolia trail
 
-This is a great trek, not too hard, and the view is great. You get to see the side of Eden Island which is great. 
+This is a great trek, not too hard, only 1.4 km distance and 488m elevation. 
+
+![](/assets/images/47.jpeg)
+
+The view at the end is great. You get to see the side of Eden Island.
+
+![](/assets/images/42.jpeg)
+
+At the end of the trail, we even for to see the carnivorous Pitcher Plant
+
+![](/assets/images/37.jpeg)
 
 > Tips:
 >
@@ -143,7 +174,10 @@ This is a great trek, not too hard, and the view is great. You get to see the si
 We didn’t take it but heard it’s harder than the Copolia trail. 
 
 ## Missions Lodge lookout
-Very nice view. You need to pay a bit to enter.
+
+This is a lookout, you can part right in front of the entrace and need to pay a bit to enter.
+
+After entering you can walk a bit, see some of the history, after minutes walk you get to see a great view.
 
 ![](/assets/images/2.jpeg)
 
