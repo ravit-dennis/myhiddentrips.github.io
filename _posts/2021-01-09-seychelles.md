@@ -106,7 +106,7 @@ Take an organised trip to La Digue and Prasline. We took the trip with Giovanni 
 
 ### Copolia trail
 
-1.	This is a great trek, not too hard, and the view is great. You get to see the side of Eden Island which is great. 
+This is a great trek, not too hard, and the view is great. You get to see the side of Eden Island which is great. 
 
 > Tips:
 >
@@ -121,7 +121,7 @@ We didn’t take it but heard it’s harder than the Copolia trail.
 ## Missions Lodge lookout
 Very nice view. You need to pay a bit to enter.
 
-![alt text](/assets/images/1.jpg "Mission Lodge")
+![](/assets/images/2.jpeg)
 
 # What to pack
 1.	There are lots of mosquitoes so be sure to bring a repellent.
