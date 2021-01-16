@@ -123,6 +123,8 @@ Around the bar there is a great atmosphere, there are wooden chairs, wooden tabl
 
 ![](/assets/images/35.jpeg)
 
+![](/assets/images/46.jpeg)
+
 My suggestion, is the fuit shake make of different fruites. As the bartender told me, 'everybody likes the shake!"
 
 ### Oscar beach
