@@ -33,6 +33,12 @@ This is the hotel we stayed at. It was amazing, but very pricey. There was no av
 The family villa was amazing, there was a private long pool with 4 chars by it, a living room, two separate sleeping rooms. There was jacuzzi and steam and hot saunas. One of the rooms had a private bath and toilet.
 All in all a great room, if you’re two couples and looking for privacy maybe it’s not the best room for you as one of the couples needs to use a shared bath and toilet which are not easily reachable.
 
+![The family villa private pool](/assets/images/27.jpeg)
+
+At Christmas day they even wrote 'Marry Christmas' on our bed using leaves!
+
+![](/assets/images/7.jpeg)
+
 The hotel also has nice breakfast in two different places, the family villas can dine in the Northern part which is by the northern sea and is less crowded and nicer than the southern one.
 
 > **Breakfast Tip**: you can order an eggs Benedict at the breakfast. It doesn’t look like there’s such an option and they don’t mention it anywhere but if you ask for it they will happily prepare one for you :)
@@ -52,9 +58,15 @@ The owners are **very** welcoming, were very helpful whenever we needed anything
 The hotel is situated 10 minutes walk from the beach. The beach was rather stormy and wasn’t as pretty as compared to the beaches in Constance Ephelia during that period.
 The beach also has an open air free gym for everyone’s use and a short path for walking/running.
 
-The area has several places for eating, like La Plage which serves things like burgers, different meat and seafood dishes, The Boat House which is a few feet away, has nice drinks and sometimes has a local band playing. While the food was more to our taste in La Plage, it was nicer to sit in the boat house, the atmosphere was very welcoming, and we felt at home.
+### Restaurants in the area
+
+The area has several places for eating, like La Plage which serves things like burgers, different meat and seafood dishes, the Boat House which is a few feet away, has nice drinks and sometimes has a local band playing. While the food was more to our taste in La Plage, it was nicer to sit in the boat house, the atmosphere was very welcoming, and we felt at home.
+
+![Food at La Plage](/assets/images/5.jpeg)
 
 We really liked Dolce Vita restaurant which was the only place we found with good coffee! They also served great pancakes and sweet food. The other food plates were OK, not more. Also turns out Dolce Vita is actually a network of restaurants and there’s also a bigger Dolce Vita in Victoria.
+
+![Yummy crep at Dolce Vita](/assets/images/6.jpeg)
 
 There was another place called the Wooden House Cafe - house which looked very nice, but unfortunately was almost always closed during that time. We managed to go there once, the food was mostly Italian and the pasta we ordered was great, we would have definitely return, unfortunately - we didn’t see it open again, probably because of COVID.
 
@@ -90,10 +102,22 @@ Take a car and travel around the island’s beaches. The beaches are somewhat di
 As mentioned above, this hotel has two great beaches: northern and southern beaches. The northern beach has deeper water and you can swim and snorkel. The southern beach is the prettiest beach on the island in my opinion, has shallow water (they are have tide in the mornings). When the water are very shallow you can walk to the island on the other side. The beach is very clean and pretty.
 
 ### Anse intendence 
-a great beach, with white silky sand. The best part is that on the left side of the entrance there’s a bar with a nice bartender that can make you an awesome cold shake for the hot weather. 
+A great beach, with white silky sand. The best part is that on the left side of the entrance there’s a bar with a nice bartender that can make you an awesome cold shake for the hot weather. 
+
+![](/assets/images/36.jpeg)
+
+![](/assets/images/35.jpeg)
 
 ### Oscar beach
 No one mentions this beach for some reason but it’s one of the best beaches of the island. The sea is turquoise and quiet and there are no people. If you like collecting shells this is the beach for you!
+
+![](/assets/images/15.jpeg)
+
+![](/assets/images/16.jpeg)
+
+![](/assets/images/17.jpeg)
+
+![](/assets/images/18.jpeg)
 
 ### Anse soleil
 
